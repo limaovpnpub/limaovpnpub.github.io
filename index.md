@@ -2,7 +2,7 @@
 ## 请收藏此地址
 
 ### 官网最新地址
-[https://www.ailimaovpn5.com](https://www.ailimaovpn5.com)
+[https://www.ailimaovpn6.com](https://www.ailimaovpn6.com)
 
 ### google play
 
