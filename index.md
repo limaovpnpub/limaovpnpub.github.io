@@ -11,7 +11,7 @@
 
 ### 直接下载地址
 
-IOS客户端：[立即下载](https://ailimaovpn7.com/assistance/wangcai)
+IOS客户端：[立即下载](https://www.ailimaovpn7.com/doc/install2.html)
 
 安卓客户端：[立即下载](https://download.linlaoban8.com/moren_lm.apk)
 
